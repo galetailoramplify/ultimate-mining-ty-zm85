@@ -1,4 +1,4 @@
-#  
+#  stealth Script for ultimate mining tycoon is the best ultimate mining tycoon Script, featuring one-hit kill and instant win. Safe and powerful for
 
 
 
